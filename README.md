@@ -16,3 +16,6 @@ dating back from January up until recent as well, I won't hesitate to send the e
 fucking done, I am not happy, I am angry at you and your stupid ass group especially after one of my friend's lives got involved,
 no I will not take this down, you need to learn to take fucking accountability for this, just be glad that I am not naming
 you publicly.
+
+Btw, if you got angry despite me not fucking naming you publicly, then you're 100% guilty of this, take accountability, AND DO NOT WEAPONIZE YOUR MENTAL HEALTH EXCUSE AGAIN
+YOU HAD BEEN LET OFF NUMEROUS TIMES, IT'S JUST WEAPONIZED INCOMPETENCE AND MANIPULATION AT THIS POINT.
