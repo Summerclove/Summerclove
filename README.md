@@ -13,4 +13,6 @@ this entire thing has gotten too far with your group.
 
 To those who are curious to see tne rentry log I have, whisper me, because I have the dates of evidences for this shit
 dating back from January up until recent as well, I won't hesitate to send the entire thing in Discord because I'm so 
-fucking done.
+fucking done, I am not happy, I am angry at you and your stupid ass group especially after one of my friend's lives got involved,
+no I will not take this down, you need to learn to take fucking accountability for this, just be glad that I am not naming
+you publicly.
