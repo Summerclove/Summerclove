@@ -11,6 +11,6 @@ them: [https://rentry.co/johnnyjoestar_](https://rentry.co/johnnyjoestar_)
 
 this entire thing has gotten too far with your group.
 
-Those those who are curious to see tne rentry log I have, whisper me, because I have the dates of evidences for this shit
+To those who are curious to see tne rentry log I have, whisper me, because I have the dates of evidences for this shit
 dating back from January up until recent as well, I won't hesitate to send the entire thing in Discord because I'm so 
 fucking done.
