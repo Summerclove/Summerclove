@@ -1,6 +1,6 @@
 ### Important, please read
 
-I got tired of how toxic the JJBA area is, and yes I am definitely aware of my Github page being stalked as well
+I got tired of how toxic the JJBA area is so just like half of the people from the area, I'm migrating to spawn, and yes I am definitely aware of my Github page being stalked as well...
 this area is where I met my friends and now shit have gotten worse so I've started to compile things as well.
 
 To you, yes you who is stalking this page, I am linking both the suicide note my friend left for you:
