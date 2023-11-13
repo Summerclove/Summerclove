@@ -8,7 +8,7 @@ https://rentry.org/funnyval
 
 and linking my other friend's rentry telling you to leave everyone's bios and githubs alone and to stop stalking
 them: [https://rentry.co/johnnyjoestar_](https://rentry.co/johnnyjoestar_) (they only hopped on the game like this morning, literally this morning only
-because they're avoiding the group after what happened to their friend).
+because they're avoiding the group after what happened to our friend).
 
 this entire thing has gotten too far with your group.
 
