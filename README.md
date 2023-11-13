@@ -19,4 +19,4 @@ you publicly here on this callout github profile (if people found out your name,
 I care because of what happened to one of my friends, this needs to be heard by people to bring this horrendous behavior to light).
 
 Btw, if you got angry despite me not fucking naming you publicly, then you're 100% guilty of this, take accountability, AND DO NOT WEAPONIZE YOUR MENTAL HEALTH EXCUSE AGAIN
-YOU HAD BEEN LET OFF NUMEROUS TIMES, IT'S JUST WEAPONIZED INCOMPETENCE AND MANIPULATION AT THIS POINT.
+YOU HAD BEEN LET OFF NUMEROUS TIMES, **IT'S JUST WEAPONIZED INCOMPETENCE AND MANIPULATION AT THIS POINT**.
