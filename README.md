@@ -11,8 +11,8 @@ mental health had been dropping because of this situation alone, everyone had be
 I'm also linking my other friend's rentry telling you to leave everyone's bios and githubs alone and to stop stalking
 them: [https://rentry.co/johnnyjoestar_](https://rentry.co/johnnyjoestar_) (they only hopped on the game like this morning, literally this morning only
 because they're avoiding the group after what happened to our friend, they had been begging for their group to stop in their profiles because they are aware that they're being stalked on as well
-after finding out that this group's ring leader copy pasted their partner's DNI list and used it as a status in their Discord DESPITE THEM BEING HIDDEN FOR THE TWO OF THEM, AND YES THEIR GROUP WAS REPORTED BEFORE
-BY A RANDO FOR ALT ACCOUNT USAGE TO HARASS/SPY ON PEOPLE).
+after finding out that this group's ring leader copy pasted their partner's DNI list and used it as a status in their Discord **DESPITE THEM BEING HIDDEN FOR THE TWO OF THEM, AND YES THEIR GROUP WAS REPORTED BEFORE
+BY A RANDO FOR ALT ACCOUNT USAGE TO HARASS/SPY ON PEOPLE**).
 
 this entire thing has gotten too far with your group.
 
