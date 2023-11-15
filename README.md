@@ -25,3 +25,10 @@ I care because of what happened to one of my friends, this needs to be heard by 
 
 Btw, if you got angry despite me not straight up naming you publicly, then you're 100% guilty of this, take accountability, AND DO NOT WEAPONIZE YOUR MENTAL HEALTH EXCUSE AGAIN
 YOU HAD BEEN LET OFF NUMEROUS TIMES, **IT'S JUST WEAPONIZED INCOMPETENCE AND MANIPULATION AT THIS POINT**.
+
+As for me, I don't care if your group decides to shit talk and mock me in your server that has been labeled as "Friendly and Non-toxic" in Disboard, all I want is for my friends
+to finally get the consolation they all deserved after going through this hellhole, all I want is to fucking shed some light on this situation now so everyone would be fucking aware at
+how problematic your group is and how the "JJBA Corner" is not the same as it used to be, just be glad that the numerous victims from the past didn't gather much evidences because they
+were honestly concerned for your group's mental health, but this shit has gone on for way too long now, **FOR YEARS DAMN IT**.
+
+I honestly just want my friends and the victims to finally find the closure they all deserved, it's time to fucking make this shit public.
