@@ -6,7 +6,7 @@ this area is where I met my friends and now shit have gotten worse so I've start
 To you, yes you who is stalking this page, I am linking both the suicide note my friend left for you:
 https://rentry.org/funnyval (what's worse is no one is able to reach out to them, they disappeared without any warnings and it's been 2 months already, everyone is on edge and are
 hoping/praying for them to come back and to answer/reply back to people's dms again, they haven't replied nor accepted people's friend requests since September and all of their friends
-mental health had been dropping because of this situation alone.)
+mental health had been dropping because of this situation alone, everyone had been begging for at least 1 sign of them being alright but some of our friends had already lost their hopes.)
 
 and linking my other friend's rentry telling you to leave everyone's bios and githubs alone and to stop stalking
 them: [https://rentry.co/johnnyjoestar_](https://rentry.co/johnnyjoestar_) (they only hopped on the game like this morning, literally this morning only
