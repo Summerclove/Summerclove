@@ -32,3 +32,5 @@ how problematic your group is and how the "JJBA Corner" is not the same as it us
 were honestly concerned for your group's mental health, but this shit has gone on for way too long now, **FOR YEARS DAMN IT**.
 
 I honestly just want my friends and the victims to finally find the closure they all deserved, it's time to fucking make this shit public.
+
+If you have questions and wants more proof, add me in fucking Discord, my username is summerclove
